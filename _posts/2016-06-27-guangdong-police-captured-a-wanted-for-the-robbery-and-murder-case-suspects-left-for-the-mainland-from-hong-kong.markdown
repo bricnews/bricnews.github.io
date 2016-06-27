@@ -1,0 +1,6 @@
+---
+published: true
+title: Guangdong Police captured a wanted for the robbery and murder case suspects left for the Mainland from Hong Kong
+layout: post
+---
+According to the Guangdong provincial Department of public security news, in recent days, notify the Hong Kong police co-operation mechanisms, from the Guangdong Public Security Bureau left for the Mainland authorities for assistance in pursuing and detaining wanted x lift in the robbery and murder case. The Hong Kong police force on March 14 this year in Wan Tau Street, Tai Po, Hong Kong a money-changer\'s shop in a vicious robbery, after investigation, suspect opening for country x (the people of Hong Kong, male, age 41) and entering the Mainland on the incident. [Birth mother for the first time to victims of](http://www.eastbuzz.com/2016/05/05/birth-mother-for-the-first-time-to-victims-of-sichuan-normal-university-vocal/) [Birth mother for the first time to victims of](http://www.eastbuzz.com/2016/05/05/birth-mother-for-the-first-time-to-victims-of-sichuan-normal-university-vocal/)Guangdong public security organs attach great importance to, based on the clues provided by the Hong Kong Police, following careful investigation survey recently captured a suspect claiming to expose State x. At present, the public security authorities in Guangdong Province is under investigation.
