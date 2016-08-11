@@ -1,0 +1,6 @@
+---
+published: true
+title: Xian a network about truck drivers allegedly touched his leg hit the chest to kiss female passenger has been detained
+layout: post
+---
+On August 10, the information Twitter account post said Xian, on August 3, a woman wears a skirt when you take the network about the car driver was a man of molesting: touch the thighs, chest and kiss hit. Yanta branch in XI \' an City Public Security Bureau staff to a surging News (www.thepaper.CN) said that the current penalties for drivers concerned implementation of security detention. [Jiangxi Yanshan judicial autopsy report evidence](http://kaidaer.blogspot.com/2016/05/jiangxi-yanshan-judicial-autopsy-report.html) [Jiangxi Yanshan judicial autopsy report evidence](http://kaidaer.blogspot.com/2016/05/jiangxi-yanshan-judicial-autopsy-report.html)Micro-Bo post information said, August 3 late, Xian City a woman and sister with a taxi software called car, from Dong Guan are street to East three Yao primary school near; dressed in skirt of woman sat in Deputy driving, way was male driver first touch thigh, then touch chest, arrived destination Hou also was forced Kiss; incident Hou number days, male driver has been harassment female passengers, which alarm.
